@@ -4,7 +4,7 @@
 
 - 本文内容主要偏软装，作为精装交付到入住的云预研，小户型舒适实用为主，个人风格强烈，请酌情参考
 - 云，只是第一步。验收估摸着先失落一次，实物对比再摧残一通，最麻烦的在于后续和人扯皮。目前能做的后一步为酷家乐3d建模云颜色搭配和尺寸，协调整体效果。
-- 出现的经典设计师单品善用Pinterst搜索图片，线下看近的就上海cabana，中古买手店和代理选择就多了。原版价格高昂，基本考虑佛山打版款
+- 出现的经典设计师单品善用Pinterst搜索图片，线下看近的就上海cabana，中古买手店和代理选择就多了。原版价格高昂，基本考虑佛山打版款，这里列举的多是大路货
 - 电子产品值得入手程度和价格强相关，我需求也比较奇葩，看看过就好
 - 抱枕，餐桌，沙发，地毯，装饰画，碗筷杯碟等展示个性的单品只做列举，不急着用的缓慢搜罗添置即可，碰巧还是单身的话更应谨慎选择
 - 对设计有追求，找家装灵感的，吐血整理了一些电子版杂志（现已收录大量多媒体资料） [阿里云盘点击此处](https://www.aliyundrive.com/s/WgQukg7r7iL) 。偏日系的可以在app《杂志迷pro》里找《Casa BRUTUS》《I'm home》等等
@@ -20,6 +20,7 @@
 - Bonaldo Geometric Table
 - Bonaldo Big Table
 - Hans  Wegner CH327
+- LC11
 - cassina 195 NAAN ：细脚伶仃的，应该不合适
 
 餐桌灯
@@ -34,17 +35,21 @@
 - bonaldo Acquerelli
 - Flos Parentesi
 - MENU JWDA
+- cinquanta floor
+- Michael Anastassiade
+- vibia pin
 
 沙发：过些时间线下蹭坐去
 
 - B&B Italia Camaleonda ：总会联想起堆叠的小年糕
-- 北欧表情方块沙发
+- baxter：被抄太厉害了，damasco尚可，不喜欢磨砂布、磨砂皮的翻毛布观感，
 - edra standard sofa：比例可能不佳
 - moroso pacific
 - Arflex Tokio Soft
-- Arflex Marenco Sofa
+- Arflex Marenco
 - Poliform Saint-Germain：应该放不下
-- 没有特别心动的
+- 宜家兰德克纳、斯德哥尔摩
+- 没有特别心动的：现在有了，Cassina Maralunga，舒适优雅
 - 不放沙发 /散放单人座沙发如Cassina LC3，这下致敬乔布斯了
 
 椅子
@@ -160,6 +165,7 @@ NAS
 绿植
 
 - 喜欢不起来鲜切的，欣赏那些纤细的，有季节性变化的
+- 量天尺
 
 冰箱
 
@@ -188,7 +194,7 @@ NAS
 
 - 预装消毒柜先拆了看尺寸：市占率和技术的角度选择，美的或colmo吧，美诺买不起
 
-厨房杂项：真不了解，高强度刷小红书去，值得参考的放网盘了。小红书@Carmen卡卡 做的厨房小件评测蛮真实的，不太适合强迫症就是了...
+厨房杂项：真不了解，高强度刷小红书去，值得参考的放网盘了。小红书@Carmen卡卡 做的厨房小件评测蛮真实的，不太适合强迫症就是了...update：购物车持续爆上线，数量众多不再列举
 
 - 厨师机：有必要吗
 - 挡水条看着难受，厨房打算尽可能弄白色，柜门要换
@@ -281,6 +287,9 @@ NAS
 - 没有特别喜欢的
 - Baxter Casablanca
 - Poliform laze bed
+- Poliform rever
+- Cassina Moov
+- 宜家诺德里：无床头+带收纳似乎适合次卧
 
 床垫
 
